@@ -1,2 +1,0 @@
-# UNIFOR_EF_2026.1 - TURMA DA TARDE
-Lorem ipsum
